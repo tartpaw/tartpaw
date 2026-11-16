@@ -8,7 +8,8 @@ $$\color{#FF7091}{\text{im chornically online on both discord and ponytown, most
 $${\color{#FFBFD1}\textbf{nonbinary/agender . asexual and sensitive to jokes !!┊ ꒱}}$$
 
 $${\color{#FFBFD1}\text{﹕★ - found me? here are my boundaires when u interact with me ✿}}$$
+
 $$\color{#70FFA9}{\text{yes!- booping, cuddling/hiding, talking to me/interacting and whispering!}}$$
-$$\color{#F21B1B}{\text{no. .- kissing without permission unless oomf, spitting on unless iku}}$$
+$$\color{#F21B1B}{\text{no. .- kissing without permission unless oomf, spitting on unless iku, hiding me unless you are c+h!}}$$
 
 <img src="https://i.pinimg.com/1200x/a8/63/94/a863941f17778e4189db6daabf2f2b1c.jpg" alt="Description of image" width="900">
