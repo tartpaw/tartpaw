@@ -14,5 +14,5 @@ $$\color{#F21B1B}{\text{no. .- kissing without permission unless oomf, spitting 
 
 <img src="https://i.pinimg.com/1200x/a8/63/94/a863941f17778e4189db6daabf2f2b1c.jpg" alt="Description of image" width="900">
 
-## $${\color{#E6CFD3}textbf{wanting to befriend me? WAIT!! read this first !!}}$$
-[my prns page !!](https://pronouns.cc/@tartpaw.com)
+## $${\color{#E6CFD3}\textbf{wanting to befriend me? WAIT!! read}}$$
+$$\{#F5D0E2}{\text{[my prns page !!](https://pronouns.cc/@tartpaw.com)}}$$
